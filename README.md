@@ -11,3 +11,7 @@ Código de acceso: x508PS+b
 Clase 3 (5 de diciembre):
 https://uammx.zoom.us/rec/share/v5mOC-HOl4UtGFT9RxNu7wA2Rk_Yg6em_GNubkJOEShM4h9C2iRkgU1tpwQKpxun.frvFLsO7Bnnm8ZUY?startTime=1733440089000
 Código de acceso: +nCBY2&c
+
+Clase 4 (9 de diciembre):
+https://uammx.zoom.us/rec/share/rjiWqjKUXpg_ek3klDA8ZMMcnaOwfBi6m_5z3DF6BXmFz8mbwlwGHfwfWnLIzdDX.A_r2NlccrAt28kPP 
+Código de acceso: f^!njDG5
