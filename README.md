@@ -15,3 +15,7 @@ Código de acceso: +nCBY2&c
 Clase 4 (9 de diciembre):
 https://uammx.zoom.us/rec/share/rjiWqjKUXpg_ek3klDA8ZMMcnaOwfBi6m_5z3DF6BXmFz8mbwlwGHfwfWnLIzdDX.A_r2NlccrAt28kPP 
 Código de acceso: f^!njDG5
+
+Clase 5 (10 de diciembre):
+https://uammx.zoom.us/rec/share/w_3RszFdvHK15ulrf9Onhtyn1haEf5-sGyrwAA0_aFtKlmB1kU1Ya2qig2dZQY9-.RjarSEQrQ5MLSXMQ 
+Código de acceso: =b96s8ti
