@@ -19,3 +19,11 @@ Código de acceso: f^!njDG5
 Clase 5 (10 de diciembre):
 https://uammx.zoom.us/rec/share/_8Ly6ShdO2t23-IEr6D8UQrUw9pCFn-Oixh8_omnRcvqB455PfjwaCyIkUNOtQor.WBmTOpVLDGSIFNLG 
 Código de acceso: =b96s8ti
+
+Clase 6 (11 de diciembre):
+https://uammx.zoom.us/rec/share/FvuYD6AQ3AVsOMucFvLpozw-d0XvBf-iGXhrIypidkrpIEQaOOx6tvs_649BqbiN.uoNL64lW5TO2PZaP 
+Código de acceso: HBj!%B6N
+
+Clase 7 (12 de diciembre):
+https://uammx.zoom.us/rec/share/_C09EwBTV5bdwhynbBNH3NCzgaOPUTgYSTZt7TVG2jnYVWO5l1Cpbr7x1nXNus8Y.1NL_nKHrErT9EzCG 
+Código de acceso: nA.t2*9U
